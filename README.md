@@ -1,4 +1,4 @@
-# RBX Earny - Support & Contact Us
+# Earn RBX - Support & Contact Us
 
 Welcome to the official support page for **RBX Earny: Spin & Earn Rewards**.
 
@@ -9,4 +9,4 @@ If you have any questions, feedback, or need assistance with the app, please fee
 * **Response Time:** We usually respond within 24–48 hours.
 
 ---
-© 2026 RBX Earny. All rights reserved.
+© 2026 Earn RBX All rights reserved.
